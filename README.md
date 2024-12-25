@@ -1,3 +1,4 @@
    <p align="center">
-   >_<  
+   dnii : basic criteria, pro/darkshipper, radinclus/radqueer,
+      uses any neurodivergency as an aesthetic 
 </p>
