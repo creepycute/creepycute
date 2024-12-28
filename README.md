@@ -13,3 +13,7 @@
   i am sarcastic but i dont use tone tags, tell me if you need them ^_^
   i DONT like when people tell me to kms/cut even as a joke so yeah avoid that.
 </p>
+
+<p align="center">
+if you're on my dni and i followed/interacted please block me, i really dont want to int with people from my dni.
+</p>
