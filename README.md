@@ -1,7 +1,7 @@
    <p align="center">
    dnii : basic criteria, pro/darkshipper, radinclus/radqueer,
       uses any neurodivergency or mental illness as an aesthetic,
-      okegom fans
+      okegom fans, hh/hb fans
 </p>
 
 <p align="center">
