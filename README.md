@@ -10,5 +10,5 @@
 </p>
 
 <p align="center">
-if you're on my dni (or i am in your dni) and i followed/interacted please block me, i really dont want to int with people from my dni.
+my dni is on my strawpage, if i followed/interacted and you're my dni please block me (same thing if i am in your dni)
 </p>
