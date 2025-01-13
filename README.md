@@ -1,9 +1,3 @@
-   <p align="center">
-   dnii : basic criteria, pro/darkshipper, radinclus/radqueer,
-      uses any neurodivergency or mental illness as an aesthetic,
-      okegom fans, 
-      hh/hb fans dniuf
-</p>
 
 <p align="center">
    byi : feel free to int (if you aren't on my dni obviously) but keep in mind i am really introverted, 
