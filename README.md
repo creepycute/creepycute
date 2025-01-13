@@ -15,5 +15,5 @@
 </p>
 
 <p align="center">
-if you're on my dni and i followed/interacted please block me, i really dont want to int with people from my dni.
+if you're on my dni (or i am in your dni) and i followed/interacted please block me, i really dont want to int with people from my dni.
 </p>
