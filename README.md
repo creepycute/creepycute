@@ -11,6 +11,6 @@
 </p>  ⠀
 
 <p align="center">
- ,,  you can find me in the DW area ^_<
+ you can find me in the DW area ^_<
  </p>                                        ⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      
 
