@@ -8,5 +8,9 @@
    
   ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
   ![](https://komarev.com/ghpvc/?username=cupidtear&color=8d8db5&style=flat&label=fossils)
-</p>  ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      
+</p>  ⠀
+
+<p align="center">
+ ,,  you can find me in the DW area ^_<
+ </p>                                        ⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      
 
