@@ -1,5 +1,5 @@
 <p align="center">
-🌀​ azazel ⠀⠀୭୧ ⠀⠀or astro 
+🦴​​ azazel ⠀⠀୭୧ ⠀⠀or astro 
 </p>
 
 <p align="center">
