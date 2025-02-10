@@ -12,5 +12,6 @@
 
 <p align="center">
  you can find me in the DW area ^_<
+im going to remake my rentry 
  </p>                                        ⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      
 
