@@ -11,7 +11,7 @@
 </p>  ⠀
 
 <p align="center">
- you can find me in the DW area ^_<
+ you can find me mostly in the DW area, safe global ^_<
 im going to remake my rentry 
  </p>                                        ⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      
 
