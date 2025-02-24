@@ -7,10 +7,10 @@
    </p>
    
   ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
-  ![](https://komarev.com/ghpvc/?username=cupidtear&color=8d8db5&style=flat&label=fossils)
+  ![](https://komarev.com/ghpvc/?username=cupidtear&color=ab7d41&style=flat&label=fossils)
 </p>  ⠀
 
 <p align="center">
- you can find me mostly in the DW area, safe global ^_<
+ you can find me mostly in the DW area, safe global 
  </p>                                        ⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      
 
