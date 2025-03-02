@@ -11,6 +11,9 @@
 </p>  ⠀
 
 <p align="center">
- you can find me mostly in the DW area, safe global 
+ you can find me mostly in the DW area, safe global
+</p>                                  
+<p align="center">
+i post my art on pinterest now :3
  </p>                                        ⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      
 
