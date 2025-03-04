@@ -12,7 +12,7 @@
 
 <p align="center">
  you can find me mostly in the DW area, safe global
-</p>                                  
+</p> 
 
  ⠀⠀⠀<p align="center">  
 i post my art on [pinterest](https://pin.it/55tpWfwrB) now :3
