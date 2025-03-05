@@ -7,7 +7,7 @@
    </p>
    
   ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
-  ![](https://komarev.com/ghpvc/?username=cupidtear&color=a61f38&style=flat&label=fossils)
+  ![](https://komarev.com/ghpvc/?username=cupidtear&color=cc899b&style=flat&label=fossils)
 </p>  ⠀
 
 <p align="center">
