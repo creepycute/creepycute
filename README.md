@@ -1,5 +1,5 @@
 <p align="center">
-🦴​​ azazel ⠀⠀୭୧ ⠀⠀or astro 
+🦴​​ lillia ⠀⠀୭୧ ⠀⠀or astro 
 </p>
 
 <p align="center">
