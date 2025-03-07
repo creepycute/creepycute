@@ -11,8 +11,12 @@
 </p>  ⠀
 
 <p align="center">
- you can find me mostly in the DW area, safe global
-</p> 
+you can find me mostly in the DW area, safe global
+</p>
+
+<p align="center">
+   dni basic criteria, pro/darkshippers, fujoshis, himedanshis or weirdos in general i dont know.. 
+</p>
 
  ⠀⠀⠀<p align="center">  
 i post my art on [pinterest](https://pin.it/55tpWfwrB) now :3
