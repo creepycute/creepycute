@@ -15,7 +15,7 @@ you can find me mostly in the DW area, safe global
 </p>
 
 <p align="center">
-   dni basic criteria, pro/darkshippers, fujoshis, himedanshis or weirdos in general i dont know.. 
+   i am astro novalite irl guys trust
 </p>
 
  ⠀⠀⠀<p align="center">  
