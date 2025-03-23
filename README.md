@@ -1,5 +1,5 @@
 <p align="center">
-🦴​​ lillia ⠀⠀୭୧ ⠀⠀or astro 
+🌱​​ lillia ⠀⠀୭୧ ⠀⠀or astro 
 </p>
 
 <p align="center">
