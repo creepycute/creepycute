@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-   any ⠀⠀all 🪽​ ১ㅤᴗ ᴗ)
+   they ⠀⠀pronounless 🪽​ ১ㅤᴗ ᴗ)
    </p>
    
   ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
