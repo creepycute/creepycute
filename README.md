@@ -15,7 +15,7 @@ you can find me mostly in the DW area, safe global
 </p>
 
 <p align="center">
-   i am astro novalite irl guys trust
+   i am astro novalite irl /silly
 </p>
 
  ⠀⠀⠀<p align="center">  
