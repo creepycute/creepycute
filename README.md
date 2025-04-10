@@ -1,5 +1,5 @@
 <p align="center">
-🌱​​ waffle ⠀⠀୭୧ ⠀⠀or astro 
+𝄞​​ waffle ⠀⠀୭୧ ⠀⠀or astro 
 </p>
 
 <p align="center">
@@ -15,7 +15,7 @@ you can find me mostly in the DW area, safe global
 </p>
 
 <p align="center">
-   i am astro novalite irl /silly
+   heavy astro kin :D
 </p>
 
  ⠀⠀⠀<p align="center">  
