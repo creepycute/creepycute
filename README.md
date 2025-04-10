@@ -11,8 +11,10 @@
 </p>  ⠀
 
 <p align="center">
-you can find me mostly in the DW area, safe global
-</p>
+ extractor / distractor pebble and astro main ^_^ 
+    <p align="center">
+    you can find me in the DW area, safe global , rarely on safe pt/spanish
+<p >
 
 <p align="center">
    heavy astro kin ૮ ó﹏ò ྀིა
