@@ -15,7 +15,7 @@ you can find me mostly in the DW area, safe global
 </p>
 
 <p align="center">
-   heavy astro kin :D
+   heavy astro kin ૮ ó﹏ò ྀིა
 </p>
 
  ⠀⠀⠀<p align="center">  
