@@ -22,5 +22,4 @@
 
  ⠀⠀⠀<p align="center">  
 i post my art on [pinterest](https://pin.it/55tpWfwrB) now :3
- </p>                                        ⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      
-
+ </p>                                    ⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      
