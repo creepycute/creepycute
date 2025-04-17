@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-    ⠀⠀pronounless 🪽​ ১ㅤᴗ ᴗ)
+    ⠀⠀pronounless 🌻​​ ১ㅤᴗ ᴗ)
    </p>
    
   ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
@@ -17,7 +17,7 @@
 <p >
 
 <p align="center">
-   heavy astro kin ૮ ó﹏ò ྀིა
+   heavy astro kin ૮ ó﹏ò 🍓​ა
 </p>
 
  ⠀⠀⠀<p align="center">  
