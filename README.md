@@ -21,5 +21,5 @@
 </p>
 
  ⠀⠀⠀<p align="center">  
- [pinterest](https://pin.it/55tpWfwrB) [strawpage](https://berrytapes.straw.page)
+ [pinterest](https://pin.it/55tpWfwrB) [strawpage](https://creepycute.straw.page)
  </p>                                    ⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      
