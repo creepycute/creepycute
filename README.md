@@ -3,11 +3,11 @@
 </p>
 
 <p align="center">
-    ⠀⠀pronounless 🌻​​ ১ㅤᴗ ᴗ)
+    ⠀⠀pronounless 🎀​​​ ১ㅤᴗ ᴗ)
    </p>
    
   ⠀⠀⠀ ⠀⠀ ⠀  ⠀⠀⠀ ⠀⠀ ⠀ ⠀⠀⠀      <p align="center">
-  ![](https://komarev.com/ghpvc/?username=cupidtear&color=e28743&style=flat&label=fossils)
+  ![](https://komarev.com/ghpvc/?username=cupidtear&color=94A55C&style=flat&label=fossils)
 </p>  ⠀
 
 <p align="center">
